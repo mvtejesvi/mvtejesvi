@@ -1,0 +1,1 @@
+Hello, my name is Tejesvi, and I've worked as a professional Biotechnologist in a variety of academic and industrial settings. I mostly use bioinformatics tools to analyze microbiome, mycobiome, and metagenomics data. I've come to discover more.
